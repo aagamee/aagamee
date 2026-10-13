@@ -32,7 +32,7 @@
 
  <p align="center"> ꜱʜᴏᴜᴛᴏᴜᴛ ᴛᴏ ᴍʏ ᴀᴍᴀᴢɪɴɢ ꜰʀɪᴇɴᴅꜱ, ʏᴏᴜ ɢᴜʏꜱ ᴀʀᴇ ᴀᴡᴇꜱᴏᴍᴇ-ꜱᴀᴜᴄᴇ ᴀɴᴅ ʙᴄ ʏᴏᴜʀ ᴀᴡᴇꜱᴏᴍᴇ-ꜱᴀᴜᴄᴇ ɪᴍ ɢᴏɪɴɢ ᴛᴏ ꜰᴇᴇᴅ ʏᴏᴜ ᴛᴏ ᴍʏ ʜᴏʀꜱᴇ.
 
-<p align="center"> Kobra, i know you saw my cardd. I read your message and I at least ask you please look at my cardd. I didn't mean to make you look problematic. 
+<p align="center"> Kobra, i know you saw my cardd. I at least ask you please look at my cardd. I didn't mean to make you look problematic. 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 

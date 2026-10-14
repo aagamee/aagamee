@@ -3,7 +3,7 @@
 
 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎<p align="center"> https://docs.google.com/document/d/12TGNa0Tx6JuTap89ZUyYWEB_x7jACagtDD12op8KHjY/edit?usp=sharing ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ ‎‎ʀᴇᴀᴅ ᴛʜɪꜱ ɪꜱ ʏᴏᴜ ᴡᴀɴᴛ. ɪ ꜱᴇʀɪᴏᴜꜱʟʏ ᴄᴏᴜʟᴅ ᴄᴀʀᴇ ʟᴇꜱꜱ. ᴛʜɪꜱ ɪꜱ ᴀ ʀᴇꜱᴘᴏɴꜱᴇ ᴛᴏ ᴀ ᴄᴀʟʟᴏᴜᴛ ᴏɴ ᴍᴇ
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎<p align="center"> https://docs.google.com/document/d/12TGNa0Tx6JuTap89ZUyYWEB_x7jACagtDD12op8KHjY/edit?usp=sharing ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ʀᴇᴀᴅ ᴛʜɪꜱ ɪꜱ ʏᴏᴜ ᴡᴀɴᴛ. ɪ ꜱᴇʀɪᴏᴜꜱʟʏ ᴄᴏᴜʟᴅ ᴄᴀʀᴇ ʟᴇꜱꜱ. ᴛʜɪꜱ ɪꜱ ᴀ ʀᴇꜱᴘᴏɴꜱᴇ ᴛᴏ ᴀ ᴄᴀʟʟᴏᴜᴛ ᴏɴ ᴍᴇ
 
 
 

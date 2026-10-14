@@ -5,7 +5,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎<p align="center"> https://docs.google.com/document/d/1Xp7eYnlSbTCbDNLfgKzNHACqko5XpN3c0MoFa6_BPDo/edit?usp=sharing
 
-‎<p align="center"> ᴜᴘᴅᴀᴛ ᴛᴏ ᴛʜᴇ ᴄᴀʟʟᴏᴜᴛ !! :ᴅ
+‎<p align="center"> ᴜᴘᴅᴀᴛᴇ ᴛᴏ ᴛʜᴇ ᴄᴀʟʟᴏᴜᴛ !! ᴛʜᴀɴᴋ ʏᴏᴜ ᴛᴏ ʙᴏᴛʜ ᴘᴀʀᴛɪᴇꜱ :ᴅ
 
 
 

@@ -3,9 +3,9 @@
 
 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎<p align="center"> https://docs.google.com/document/d/12TGNa0Tx6JuTap89ZUyYWEB_x7jACagtDD12op8KHjY/edit?usp=sharing 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎<p align="center"> https://docs.google.com/document/d/1Xp7eYnlSbTCbDNLfgKzNHACqko5XpN3c0MoFa6_BPDo/edit?usp=sharing
 
-‎<p align="center"> ʀᴇᴀᴅ ᴛʜɪꜱ ɪꜱ ʏᴏᴜ ᴡᴀɴᴛ. ɪ ꜱᴇʀɪᴏᴜꜱʟʏ ᴄᴏᴜʟᴅ ᴄᴀʀᴇ ʟᴇꜱꜱ. ᴛʜɪꜱ ɪꜱ ᴀ ʀᴇꜱᴘᴏɴꜱᴇ ᴛᴏ ᴀ ᴄᴀʟʟᴏᴜᴛ ᴏɴ ᴍᴇ
+‎<p align="center"> ᴜᴘᴅᴀᴛ ᴛᴏ ᴛʜᴇ ᴄᴀʟʟᴏᴜᴛ !! :ᴅ
 
 
 

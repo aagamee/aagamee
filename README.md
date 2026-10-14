@@ -32,7 +32,7 @@
 
  <p align="center"> ꜱʜᴏᴜᴛᴏᴜᴛ ᴛᴏ ᴍʏ ᴀᴍᴀᴢɪɴɢ ꜰʀɪᴇɴᴅꜱ, ʏᴏᴜ ɢᴜʏꜱ ᴀʀᴇ ᴀᴡᴇꜱᴏᴍᴇ-ꜱᴀᴜᴄᴇ ᴀɴᴅ ʙᴄ ʏᴏᴜʀ ᴀᴡᴇꜱᴏᴍᴇ-ꜱᴀᴜᴄᴇ ɪᴍ ɢᴏɪɴɢ ᴛᴏ ꜰᴇᴇᴅ ʏᴏᴜ ᴛᴏ ᴍʏ ʜᴏʀꜱᴇ.
 
-<p align="center"> Kobra, i know you saw my cardd. I at least ask you please look at my cardd. I didn't mean to make you look problematic. If you want to talk about it, I have unblocked you on everything and I'm willing to talk about it and explain myself. I seriously didn't mean to put you in a bad light at all or make you look problematic when your not.
+<p align="center"> Kobra, i know you saw my cardd. I at least ask you please look at my cardd or message me. I didn't mean to make you look problematic at all and I can swear on that. If you want to talk about it, I have unblocked you on everything and I'm willing to talk about it and explain myself. I seriously didn't mean to put you in a bad light at all or make you look problematic when your not.
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
